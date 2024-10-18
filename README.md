@@ -9,4 +9,4 @@ My research interests are:
 
 Homepage [https://romain.vuillemot.net/](https://romain.vuillemot.net/)
 
-Google Scholar [https://scholar.google.fr/](https://scholar.google.fr/)
+Google Scholar [https://scholar.google.fr/]([https://scholar.google.fr/)](https://scholar.google.com/citations?user=MzX_xoUAAAAJ&hl=en)
